@@ -1,5 +1,5 @@
 # 💫 About Me:
-Vitor Hugo Gonçalves  Bernardes <br>🚀 Desenvolvedor apaixonado por tecnologia<br>💻 Crio sites, monto PCs e instalo Linux<br>🐧 Amante do open-source<br>👨‍💻 Dev | Web • Linux • Hardware<br>✨ Transformando ideias em código<br>😎 Dev em evolução<br>🌐 Construindo sites<br>🖥️ Montando PCs<br>🐧 Viciado em Linux<br>🎧 Codando ao som de boas músicas
+Kaet salsh <br>🚀 Desenvolvedor apaixonado por tecnologia<br>💻 Crio sites, monto PCs e instalo Linux<br>🐧 Amante do open-source<br>👨‍💻 Dev | Web • Linux • Hardware<br>✨ Transformando ideias em código<br>😎 Dev em evolução<br>🌐 Construindo sites<br>🖥️ Montando PCs<br>🐧 Viciado em Linux<br>🎧 Codando ao som de boas músicas
 
 
 ## 🌐 Socials:
