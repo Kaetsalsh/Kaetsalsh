@@ -1,5 +1,5 @@
 # 💫 About Me:
-🖥Engenharia da computação<br>💻Hardware and software<br>🇧🇷Brasileiro<br>🐧linux<br>♟️chess player
+🖥Engenharia da computação<br>💻Hardware and software<br>Brasileiro<br>🐧linux<br>♟️chess player
 
 
 ## 🌐 Socials:
